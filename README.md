@@ -1,1 +1,1 @@
-# ip1-liorschifrin
+# IP2 – Mini Dominion
